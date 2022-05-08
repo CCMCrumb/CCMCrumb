@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CCMCrumb
+- 👀 I’m interested in GAMING
+- 🌱 I’m currently learning NOTHING
+- 💞️ I’m looking to collaborate on NOTHING
+- 📫 How to reach me DONT
